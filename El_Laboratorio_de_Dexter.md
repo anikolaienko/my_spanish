@@ -1,4 +1,4 @@
-El laboratorio de Dexter
+El laboratorio de Dexter - https://www.youtube.com/watch?v=9vltYTfQi5k&t=995s
 graves problems - serious problems
 te están esperando - they are waiting for you
 casi llega tarde otra vez - almost late again
