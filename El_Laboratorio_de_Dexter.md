@@ -11,3 +11,9 @@
 * la cabeza - head
 * volver - return
 * grande y poderoso - big and powerful
+* ya basta - enough already
+* salvar - save
+* venga - come on
+* venga vamos a preguntar - come on, let's ask
+* deprisa - quickly
+* 
