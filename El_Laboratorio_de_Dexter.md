@@ -16,4 +16,7 @@
 * venga - come on
 * venga vamos a preguntar - come on, let's ask
 * deprisa - quickly
-* 
+* Intenta por aquí - try here
+* Intentar - attempt
+* voy a hacer cualquier cosa por ella - I will do anything for her
+* cualquier cosa menos eso -
